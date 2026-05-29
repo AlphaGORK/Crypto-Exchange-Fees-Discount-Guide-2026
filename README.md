@@ -9,7 +9,7 @@ Binance (币安) GRO_28502_A77LQ [Click to Activate 20% Rebate](https://www.bsmk
 
 OKX (欧意) 2288054 [Click to Activate 18% Rebate](https://www.okx.com/en-sg/join/2288054) Highest Global Level 18% Fee Waiver | Up to $10,000 in Digital Blind Boxes
 
-GATE (芝麻开门) [Click to Activate 40% Rebate]
+GATE (芝麻开门) VlUQAQ0O[Click to Activate 40% Rebate]
 
 (https://www.gate.com/zh/referral/registry?ref=VlUQAQ0O) Enjoy instant fee rebates, saving money on every trade. Lifetime 30/40% Automatic Rebate for Spot/Contract Trading | $688 Red Packet Reward
 
