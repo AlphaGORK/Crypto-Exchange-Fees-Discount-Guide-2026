@@ -11,7 +11,7 @@ OKX (欧意) 2288054 [Click to Activate 18% Rebate](https://www.okx.com/en-sg/jo
 
 GATE (芝麻开门) VlUQAQ0O [Click to Activate 40% Rebate]
 
-(https://www.gatewebsite.net/zh/referral/registry?ref=VlUQAQ0O&ref_type=103&page=superRebate)) Enjoy instant fee rebates, saving money on every trade. Lifetime 30/40% Automatic Rebate for Spot/Contract Trading | $688 Red Packet Reward
+(https://www.gatewebsite.net/zh/referral/registry?ref=VlUQAQ0O&ref_type=103&page=superRebate)) Enjoy instant fee rebates, saving money on every trade. Lifetime 30/40% Automatic Rebate for Spot/Contract Trading | 688 USDT rewards
 
 ## Frequently Asked Questions and Activation Confirmation (FAQ)
 
